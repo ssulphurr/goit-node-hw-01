@@ -2,7 +2,7 @@
 
 **All contacts:** https://ibb.co/mGz4Xkq
 
-**Geting contact:** https://ibb.co/zSfZkst
+**Getting contact:** https://ibb.co/zSfZkst
 
 **Adding contact:** https://ibb.co/P64zq9J
 
